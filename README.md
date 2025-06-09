@@ -2,7 +2,7 @@
 
 Ou pode me chamar de Saky. 😊
 
-- 🔭 Estudando ADS - 1/5
+- 🔭 Estudando ADS - 2/5
 - 🌱 Programadora em desenvolvimento
 - 💬 https://x.com/sakymew
 - 💙 https://konect.gg/sakymew
